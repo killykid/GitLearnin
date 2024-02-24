@@ -1,4 +1,5 @@
 # GitLearnin
+Wahoowhere
 Whattttt is the detached head? :)
 Wawooweewa
 why 
@@ -10,3 +11,13 @@ how
 whatatataa
 Alpacka
 WhereamIgoin
+
+Whattttt is the  head d etached? :)
+Wldjfoifwmmifojekfmfo
+xx
+cx
+sdxfnreo 4xxç
+
+
+ññññañañañañañañañççaçaaça´s´sd´ñsdç´ça´dñsç
+TrynaBranch
